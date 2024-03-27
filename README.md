@@ -2,7 +2,9 @@
 
 </div>
 🚀 I'm currently learning Estatistics with Python
+
 🖖 I'm  looking to colaborate on any data analysis projects!
+
 📬 How to reach me: maria.auagusta.ferreira61@gmail.com
 
  <div>
