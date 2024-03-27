@@ -5,7 +5,7 @@
 
 🖖 I'm  looking to colaborate on any data analysis projects!
 
-📬 How to reach me: maria.auagusta.ferreira61@gmail.com
+📬 How to reach me: maria.augusta.ferreira61@gmail.com
 
  <div>
   <a href="https://github.com/mariaaugustaferreira">
